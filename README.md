@@ -358,6 +358,10 @@ CAPITULO 16
 
 ![image](https://user-images.githubusercontent.com/106272493/186331021-5c98410f-ed1e-4ece-9671-58d6f4f8fbcb.png)
 
+VIDEO
+
+https://youtu.be/DliT72dLj7c
+
 
 CONCLUSIONES
 
